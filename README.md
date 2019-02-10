@@ -1,1 +1,1 @@
-# buny
+# bu dosya bunysoprain tarafından hazırlanmıştır.
